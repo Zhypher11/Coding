@@ -1,8 +1,1 @@
-DHAHFHSADHhdhasdhashdhashdsjdahskjdhasdjksjhkdhjkshdjksjd
-d
-sd
-as
-da
-sd
-asd
-s
+Hola Ricardo, bienvenido a tu carrera como programador
